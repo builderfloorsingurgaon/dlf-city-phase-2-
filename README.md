@@ -1,0 +1,2 @@
+# dlf-city-phase-2-
+DLF City Phase 2 is a premium residential community developed by DLF and is spread over a huge plot. The project seeks to infuse newer concepts and ideas into community living and is situated at Gurgaon. The project has lush green surroundings and other natural attractions for the residents in addition to several contemporary facilities. It consists of a total of 3198 Plots with average home sizes ranging between 200 Sq Yard to 1100 Sq Yd Plots.
